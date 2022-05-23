@@ -1,1 +1,1 @@
-https://croxyproxy.com
+https://proxysite.com
