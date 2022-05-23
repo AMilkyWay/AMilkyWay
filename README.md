@@ -1,1 +1,1 @@
-https://youtubeunblocked.live
+https://proxy-youtube.com
