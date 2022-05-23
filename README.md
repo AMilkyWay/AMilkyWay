@@ -1,1 +1,1 @@
-https://proxy-youtube.com
+https://filterbypass.me
